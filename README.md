@@ -16,3 +16,5 @@ Anyway, I'll definitely change this eventually if that s even something you can 
 Maybe I'll eventually talk ab my game, but not right now
 
 bye bye 
+
+I can edit it. - Joe from the next day
